@@ -1,3 +1,3 @@
 # pr
 
-átírva
+átírva - alomban
